@@ -25,8 +25,4 @@ Your final investment strategy should include:
 ○ Recommended investment vehicles (direct project investment, funds, public equities, etc.) 
 5. A "dashboard" design for tracking investment performance, including key metrics and decision points that would trigger portfolio rebalancing
 
-Aishah Abdul- Hakeem - 9296206268
 
-Stephen D’Ambrosio - 978-907-2805
-
-Cooper Proctor - 970-987-4429
